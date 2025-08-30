@@ -1,1 +1,1 @@
-Soy Xiomara Quispe Celi, una estudiante de 19 años apasionada por el desarrollo de software. Actualmente, estoy en mi cuarto ciclo de Diseño y Desarrollo de Software, donde disfruto explorando nuevas tecnologías y enfrentando desafíos. Siempre busco aprender algo nuevo y mejorar mis habilidades día a día.
+Soy Xi
